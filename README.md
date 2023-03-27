@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Loch-Z
-- 👀 I’m interested in influencing the consequence of the universal by utilizing rules.
+- 👀 I'm interested in influencing the consequences of the universe by utilizing rules.
 
 
 <!---
